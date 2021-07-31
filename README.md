@@ -6,6 +6,6 @@
 - 🤔 I’m looking for help to argue with stupid reviewer 3.
 - 💬 Ask me about the answer of life, the universe, and everything (always 42)
 - 📫 How to reach me: search "yufree"
-- 😄 Pronouns: he/这货
+- 😄 Pronouns: he/him/his
 - ⚡ Fun fact: My initial is MY
 
